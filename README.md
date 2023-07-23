@@ -11,5 +11,5 @@ Teaching aims:
 - Navigate the challenges that these create regarding wildlife, industry output, economy, and society
 
 
-## This workshop is accompanied by the PDF game instructions and the short video tutorials. Have fun 🥳
+## This workshop is accompanied by the gamesAndGreenSolutions.pdf written instructions, or the short video tutorials that will be provided on the day. Have fun 🥳
 
